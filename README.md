@@ -1,2 +1,0 @@
-# PapaAniko
- Papa Aniko
